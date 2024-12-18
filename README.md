@@ -1,0 +1,2 @@
+# .github
+Hit It Rich Free Coins 3.5.1 is the ultimate way to collect daily free coins in Hit It Rich 2025! With this tool, players can easily unlock free coins every day to boost their gameplay, earn exclusive rewards, and level up faster. Whether you're aiming for special bonuses, limited-time events, or unlocking premium content, Hit It Rich Free Coins offers the quickest and easiest way to get ahead in the game.
